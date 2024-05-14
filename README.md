@@ -1,1 +1,1 @@
-# hello-world
+# I want to become a full stack web developer and a pro-efficient web designer who can both design a website from group up and develop it using modern technologies. I want to create projects that will be usefull to users and earn money from those freelance projects.
